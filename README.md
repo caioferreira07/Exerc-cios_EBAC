@@ -1,1 +1,1 @@
-# Exerc-cios_EBAC
+# Exercicios-EBAC
